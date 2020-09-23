@@ -1,5 +1,5 @@
 # Introduce Myself
-### My name is yueran yu, my english name id Grace.
+### My name is Yueran Yu, my english name is Grace.
 
 
 # The City I Stayed
